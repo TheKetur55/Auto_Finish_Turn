@@ -1,3 +1,4 @@
+https://cdn.discordapp.com/attachments/349666504003944478/753986986888658974/unknown.png
 Game : http://lindo.no-emu.co/
 
 
